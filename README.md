@@ -1,1 +1,1 @@
-You need a strong determination to become a full stack developer. Don't get it twisted
+You need a strong determination to become a full stack developer. I got a really patient tutor today!
